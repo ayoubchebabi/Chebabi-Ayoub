@@ -1,6 +1,6 @@
 # Chebabi-Ayoub
 Hi 👋, I'm Chebabi Ayoub 
-I am a professional with a strong background in finance and management, holding a bachelor's degree in finance and management and a master's degree in financial management and organizational strategies. My academic journey has equipped me with in-depth expertise in the fields of finance, management, and business strategy.
+I am a professional with a strong background in finance and management, holding a master's degree in finance and management and a master's degree in financial management and organizational strategies. My academic journey has equipped me with in-depth expertise in the fields of finance, management, and business strategy.
 
 My passion for Business Intelligence (BI), data analysis, and business analytics has driven me to proactively explore these domains. I am continually seeking new knowledge and skills to deepen my understanding of data's role in strategic decision-making.
 
